@@ -1,1 +1,1 @@
-# short.asia-q39-www.isntgram.com-metaverified
+# short.asia-q39-www.isntgraam.com-metaverified
